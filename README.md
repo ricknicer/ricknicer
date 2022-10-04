@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ricknicer
+- 👀 I’m interested in #void
+- 🌱 I’m currently learning how to live
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me, please don't
